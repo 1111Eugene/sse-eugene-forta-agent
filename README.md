@@ -1,3 +1,4 @@
+Please add me as a Agent Developer [Published] on Discord, my username is 1111Eugene#6960
 # High Gas Agent
 
 ## Description
